@@ -1,2 +1,0 @@
-# nitishjangra.github.io
-nitishjangra
